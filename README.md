@@ -1,0 +1,7 @@
+- 🍃 Hi, I’m @shadzchao!!!
+- 🐾 I’m interested in shadow the hedgehog!
+- 🌱 I’m currently learning a new art style!
+- 🕸 I’m looking to get commissions!
+- 🤍 How to reach me: Discord or Twitter!!
+- 🌒 Pronouns:  he/him
+- ✨️ Fun fact: im an artist!
